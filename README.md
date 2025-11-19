@@ -131,7 +131,7 @@
 
 📧 [venkateshwar1409@gmail.com](mailto:venkateshwar1409@gmail.com)  
 📞 [+91 9381751082](tel:+919381751082)   
-💼 [LinkedIn](www.linkedin.com/in/bommideni-venkateshwar-433935334)  
+💼 [LinkedIn](https://www.linkedin.com/in/bommideni-venkateshwar-433935334)  
 🐙 [GitHub](https://github.com/venky0914)
 
 ---
